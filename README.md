@@ -234,10 +234,6 @@ Investors should not make a decision based solely on GMP, expected listing gains
 
 For investors asking **Should I buy NSE IPO**, the answer ultimately depends on individual financial objectives and risk appetite.
 
-For the complete NSE IPO analysis, visit:
-
-👉 **[NSE IPO 2026 – Complete Analysis | Finowings](https://www.finowings.com/IPO/nse-ipo)**
-
 ## Disclaimer
 
 This content is provided for educational and informational purposes only. It should not be considered investment advice, a recommendation to subscribe to the NSE IPO, or a guarantee of listing gains or future returns.
